@@ -11,5 +11,5 @@
 
 อาจารย์ที่ปรึกษา : ผศ.ดร. พุธษดี ศิริแสงตระกูล
 
-[Link Game](https://drive.google.com/file/d/1RvEMKCiiH7KqJe6oRjeNtFYqF2PID-Pp/view?usp=sharing)
+[Link Game สำหรับเล่น](https://drive.google.com/file/d/1RvEMKCiiH7KqJe6oRjeNtFYqF2PID-Pp/view?usp=sharing)
 
